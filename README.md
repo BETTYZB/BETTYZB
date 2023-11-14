@@ -23,10 +23,11 @@ In my spare time, I like to
 
 
 
-I an currently working on some personal and class group projects which will remain unannounced for the time 
+I an currently working on some personal and class group projects which will remain unannounced for the time being.
 
 
-being. I am looking for intership opportunities for Winter, Spring, Summer 2024.
+
+I am looking for intership opportunities for Winter, Spring, Summer 2024.
 
 ### Skills
 
