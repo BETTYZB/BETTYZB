@@ -12,7 +12,7 @@ I am a sophomore student at Minnesota State University, Mankato majoring Compute
 
 In my spare time, I like to 
 
-    🏀🏓 🏂playing table tennis and basketball( even if I too short😁, i enjoy it.
+    🏀🏓 🏂playing table tennis and basketball (even if I too short😁, i enjoy it) .
     
     🪕 listening spritual song
     
