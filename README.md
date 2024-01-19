@@ -32,7 +32,7 @@ I am looking for intership opportunities for Winter, Spring, Summer 2024.
 ### Skills
 
 
-PYTHON, JAVA , JAVASCRIPTS, CSS, HTML, C, OOP, Problem solving, testing and debugging
+PYTHON, JAVA, CSS, HTML, C, OOP, Problem solving, testing and debugging
 
 
 
