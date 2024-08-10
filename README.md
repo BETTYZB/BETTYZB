@@ -27,7 +27,7 @@ I an currently working on some personal and class group projects which will rema
 
 
 
-I am looking for intership opportunities for Winter, Spring, Summer 2024.
+I am looking for intership opportunities for Winter, Spring, Summer 2025.
 
 ### Skills
 
